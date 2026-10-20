@@ -9,7 +9,7 @@ $\texttt{\color{#858585}In}$ $\texttt{\color{#6d6d6d}This}$ $\texttt{\color{#656
     <p>kaiser/kai/oppie</p>
     <p>any/all but no she</p>
     <p> <img width="100" height="50" alt="Bradar" src="https://github.com/user-attachments/assets/12590556-4cbe-4e2d-baf7-881b85eeb571" /> <p>
-    <p>  </p>
+    <p> <img width="100" height="50" alt="mewgenics(2)" src="https://github.com/user-attachments/assets/39483246-c277-49f4-9bb2-cd647fca6621" /> </p>
 <img src="https://visitor-badge.laobi.icu/badge?page_id=silly-dotcom.silly-dotcom&left_color=LightRed&right_color=LightRed&left_text=homosexuals;"/></p> 
 
   </details>
@@ -25,7 +25,8 @@ $\texttt{\color{#4f4f4f}To}$ $\texttt{\color{#403f3f}Our}$ $\texttt{\color{#3231
 
 <img width="1000" height="58" alt="image" src="https://github.com/user-attachments/assets/37b7579e-7a33-41ee-9a22-e24960c9c1db" />
 
-<img width="245" height="255" alt="mewgenics(1)" src="https://github.com/user-attachments/assets/83f1a9c0-f22d-487e-ac43-7feaf75c47d1" />
+
+
 
 
 
