@@ -5,8 +5,9 @@
     <summary></summary>
     <p>kaiser/kai/oppie</p>
     <p>any/all but no she</p>
-    <p><img width="100" height="50" alt="strombrew with a momo behind him and says _mom pick me up_" src="https://github.com/user-attachments/assets/2ceebf7c-04bb-4b10-9956-552ef31af9bb" />
+    <p><img width="100" height="100" alt="strombrew with a momo behind him and says _mom pick me up_" src="https://github.com/user-attachments/assets/2ceebf7c-04bb-4b10-9956-552ef31af9bb" />
 </p>
+    <p>  </p>
   </details>
 </div>
 
