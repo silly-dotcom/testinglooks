@@ -8,7 +8,8 @@ $\texttt{\color{#858585}In}$ $\texttt{\color{#6d6d6d}This}$ $\texttt{\color{#656
     <summary></summary>
     <p>kaiser/kai/oppie</p>
     <p>any/all but no she</p>
-    <p>c*hcomf + c*hhvyenc always</p>
+    <p>probably on wcue, so w2i</p>
+    <p>c*hcomf + c*hhvyenc</p>
     <p> <img width="100" height="50" alt="Bradar" src="https://github.com/user-attachments/assets/12590556-4cbe-4e2d-baf7-881b85eeb571" /> <p>
     <p> <img width="100" height="50" alt="mewgenics(2)" src="https://github.com/user-attachments/assets/39483246-c277-49f4-9bb2-cd647fca6621" /> </p>
 <img src="https://visitor-badge.laobi.icu/badge?page_id=silly-dotcom.silly-dotcom&left_color=LightRed&right_color=LightRed&left_text=homosexuals;"/></p> 
