@@ -1,4 +1,4 @@
-<img width="1000" height="58" alt="image" src="https://github.com/user-attachments/assets/bd8de3f4-89b6-438a-bc0a-8a1686ea8dca" />
+<img width="1000" height="58" alt="image" src="https://github.com/user-attachments/assets/37b7579e-7a33-41ee-9a22-e24960c9c1db" />
 <img align="left" width="300" src="https://github.com/user-attachments/assets/0a158f24-30ff-4a87-b061-ef54357ed864">
 
 $\texttt{\color{#858585}In}$ $\texttt{\color{#6d6d6d}This}$ $\texttt{\color{#656262}Present}$ $\texttt{\color{#595959}Crisis,}$ $\texttt{\color{#4f4f4f}Government}$ $\texttt{\color{#403f3f}Is}$ $\texttt{\color{#323131}Not}$ $\texttt{\color{#2c2b2b}The}$ $\texttt{\color{#1d1d1d}Solution}$ $\texttt{\color{#161616}To}$ $\texttt{\color{#0a0a0a}Our}$ $\texttt{\color{#000000}Problem.}$
@@ -14,7 +14,7 @@ $\texttt{\color{#858585}In}$ $\texttt{\color{#6d6d6d}This}$ $\texttt{\color{#656
 
   </details>
 
-[credits](https://www.tumblr.com/cursed-carmine/828550495635374080/ruffle-divider)
+[banner creds, tinted by me](https://www.tumblr.com/cursed-carmine/828550495635374080/ruffle-divider)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315kycgock6jgkdxpgri6me37pjq&cover_image=true&theme=natemoo-re&show_offline=true&background_color=000000&interchange=false&profanity=false&hide_remaster=true&bar_color=ff0000&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
@@ -23,6 +23,6 @@ $\texttt{\color{#4f4f4f}To}$ $\texttt{\color{#403f3f}Our}$ $\texttt{\color{#3231
 
 
 
-<img width="1000" height="58" alt="image" src="https://github.com/user-attachments/assets/bd8de3f4-89b6-438a-bc0a-8a1686ea8dca" />
+<img width="1000" height="58" alt="image" src="https://github.com/user-attachments/assets/37b7579e-7a33-41ee-9a22-e24960c9c1db" />
 
 
